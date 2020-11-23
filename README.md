@@ -1,2 +1,0 @@
-# TimMercx.github.io
-Gaming
